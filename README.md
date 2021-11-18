@@ -1,1 +1,0 @@
-# yagnasri-vintha
